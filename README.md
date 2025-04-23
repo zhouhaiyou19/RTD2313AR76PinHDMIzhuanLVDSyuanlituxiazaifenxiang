@@ -1,0 +1,1 @@
+# RTD2313AR76PinHDMIzhuanLVDSyuanlituxiazaifenxiang
